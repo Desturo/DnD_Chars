@@ -1,6 +1,32 @@
-## Kultverfolgung im Norden
+# Kultverfolgung im Norden
 - Vor ungefähr 2 Jahren (Mit 20) im Winter
-- Ein Kult östlich von Elturel gewann immer mehr Anhänger
+- Ein Kultim Norden gewann immer mehr Anhänger
 - nach einigen langen und harten Wintern bei dem viele Ernten und Vieh gestorben ist hat ein Anhänger von Auril geschafft die Leute davon zu überzeugen, dass die einzige Möglichkeit sei, einen Winter, stärker als jeder zu vor heraufzubeschwören. Dabei sollen alle schwachen Pflanzen, Tiere und Menschen, die keinen Winter überleben können absterben wodurch Winter nie weider ein Problem werden soll.
 - Durch die Anbetung lies Auril eben solch einen Winter beginnen. Schneestürme begannen lang bevor man sie erwartet hätte und Bäume die teils noch Blätter trugen wurden mit Schnee bedeckt.
-- Mit einer relativ großen Gruppe sind wir durch die Städte gezogen. Es gab kaum Kämpfe, die Leute liesen sich meist schnell überreden und erkannten, was sie da taten. Sie waren alle nur verzweifelte Bürgern, welchen eine Lösung für ein scheinbar unlösbares Problem geboten wurde, dass sie darauf angesprungen sind war teils verständlich. Einige fanatischeren Mitglieder mussten wir jedoch mit Gewalt überreden.
+
+
+Mit einer relativ großen Gruppe sind wir durch die Städte gezogen. Es gab kaum Kämpfe, die Leute liesen sich meist schnell überreden und erkannten, was sie da taten. Sie waren alle nur verzweifelte Bürgern, welchen eine Lösung für ein scheinbar unlösbares Problem geboten wurde, dass sie darauf angesprungen sind war teils verständlich. Einige fanatischeren Mitglieder mussten wir jedoch mit Gewalt überreden. Einige unserer Kameraden blieben zurück in den Dörfern, sorgen für Ordnung, halfen den Bewohnern und führten einige Wiedersacher in die nächste Stadt, wo über sie gerichtet werden soll. Gegen Ende unserer Mission waren wir nur noch zu sechst aber waren den letzten Drahtziehern des Kults dicht auf der Spur. Jedoch war es offensichtlich, dass sie Auril auf ihrer Seite war. Auf einem Berg wurden wir von einem gewaltigen Schneesturm überrascht. Wir sind in einem Gasthaus untergekommen, das für Wanderer die den Berg überqueren gedacht war.
+Dort in den Bergen gab es regelmäßig Schnee, doch so einen Sturm hatte das Gasthaus noch nie erlebt. Die Tür war als der Sturm begann anscheinend aus den angeln geflogen und das Schloss ging kaput. Wenn jemand rein und raus ging musst sie immer wieder aufs neue mit Brettern und Nägeln, die daneben standen zu nageln. Wir hatten angst, es stürze jederzeit über unserem Kopf ein doch es hielt Stand. Mit unseren eigenen Vorräten und etwas aus dem Gasthaus warteten wir den Sturm ab und nach einer Nach und einem Tag konnten wir weiter. Durch hüfthohen Schnee sind wir bis zu unserem Ziel gekommen, eine Höhle in welcher vor Ewigkeiten ein Altar für Auril errichtet wurde. Wir hatten irgend ein kleines Loch im Fels erwartet, worin ein einfacher Steinaltar stand oder etwas dergleichen. Doch die riesige Höhle verlief unter einem Fluss und das Wasser das durch das Gestein sickerte gefror an der Decke oder bildete gigantische Eiszapfen. Druch ein paar risse in der decke leuchtete die Höhle in eisig blauem licht.
+
+Wie wir es vermutet hatten fanden wir dort die letzten, verzweifelten Kultisten beim Altar vor.
+Anscheinend hatte sie der Sturm selbst erwischt, die meisten von ihnen waren halb erfroren und hatten wie Sinnlos ihr eigentliches unterfangen tatsächlich war. Der Altar bestand aus den unteren teilen riesiger Eis-Stalagmiten. Es sah aus als wären diese nur aus dem Boden gewachsen, um den Altar zu bilden. In der Mitte hatte sich aus dem Eis eine abstrakte Figur einer frau geformt.
+
+Vor diesem altar knieten die restlichen Überbleibsel des Kultes und beteten um ein letztes Wunder. Dieses kam jedoch nicht. Zwei von ihnen kämpften trotz unseres Angebotes auf einen fairen Prozesses gegen uns bis zu ihrem Tot. Ihr blinder Fanatismus lies es nicht zu, dass sie sich ergeben. Ein weiterer erlag kurz darauf seiner Erkältung. Die letzte Kultistin brachten wir ins Tal zurück. Was aus ihr geworden ist habe ich nicht mehr mit gekriegt. Ich war nur froh, dass mein nächster Auftrag nicht mehr im Schnee oder den Bergen war.
+# Treffen mit Gawain
+- Wurde von der Order zu einem Spezial-Auftrag beordert
+- Zusammenarbeit zwischen Order und Harpers
+- Korruption und Intrigen in einem Staat/Königreich.
+- Wurde zur Infiltration ins Team geholt. Aufgrund meines ungewöhnlichen Skillsets in sowohl Kampf als auch Musik und Tanz wurde ich in die Hofkapelle geschmuggelt.
+
+Eine meine ungewöhnlichsten Missionen war eine Zusammenarbeit mit den Harpers. Diese hatten unentdeckt einen Hofstaat ausspioniert, von welchem sie vermutet haben, dass sich dort einzelne Personen mehr und mehr Macht aneignen. Es gab Berichte von unrechtmäßigen Festnahmen und manipulierten Gerichtsverfahren. Außerdem wurden nach und nach die Steuern höher und der Palast Prunkvoller.
+
+Die Harpers brauchten jemand, der für sie tiefer in den Palast eindringen und Informationen besorgen kann. Ich wurde von einem Harper, welcher oft bei der Order ist, quasi der Mediator zwischen den zwei Organisationen vorgeschlagen. Und kurz darauf stand ich, edel eingekleidet, mit Violinen-Koffer samt Instrument und verstecktem Schwert unter den schönen und reichen des Landes. Ich muss zugeben dass ich doch etwas für solche Prunkvollen feuern übrig habe. Die Musik, das essen und die schönen Klamotten schaffen alle einfach eine besondere Aura. Bei dieser Feier gab es jedoch den sauren Beigeschmack, dass das alles auf den Rücken leidender Bürger gebaut wurde.
+
+Ich fing an als teil der Musikanten und spielte eine Weile Musik, und machte ein paar Ziele aus, bei welchen ich später genauer zuhören sollte. Ich mischte mich danach unter die Leute.
+Die meisten Informationen erhielt ich von der Tochter des Regenten, welche ich zuerst beim Gesellschaftstanz getroffen und danach in ein Gespräch vermittelt hatte.
+
+Was ich aufgeschnappt hatte bestätigte die Vermutungen, welche die Harpers aufgestellt hatten.
+Viel wichtiger war noch die Information über ein Dokument, welche ich bei einem Gespräch zwischen Regent und Oberrichter überhört hatte. Mit diesem Dokument konnte genug bestätigt werden.
+Während im großen Saal des Palastes die Feier in vollem Gang war schlich durch die Büros, bis ich das gesuchte Dokument finden konnte, brachte dieses zu meiner Verstärkung, welche etwas außerhalb warteten. Noch in der selben Nacht, nachdem die meisten Gäste gegangen waren und sich schlafen gelegt hatten Stürmte unsere kleine Einheit den Palast. Die Wachen waren kein Problem. Mit einem Angriff wie unserem hatten sie nicht gerechnet. Doch auch wenn wäre keiner von ihnen eine Gefahr für Gawain, den Leiter unseres Trupps gewesen.
+
+Wir konnten erfolgreich Berge an Beweisen sammeln und einen Großteil der Strippenzieher festnehmen. 
