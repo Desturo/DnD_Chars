@@ -1,0 +1,6 @@
+## Kultverfolgung im Norden
+- Vor ungefähr 2 Jahren (Mit 20) im Winter
+- Ein Kult östlich von Elturel gewann immer mehr Anhänger
+- nach einigen langen und harten Wintern bei dem viele Ernten und Vieh gestorben ist hat ein Anhänger von Auril geschafft die Leute davon zu überzeugen, dass die einzige Möglichkeit sei, einen Winter, stärker als jeder zu vor heraufzubeschwören. Dabei sollen alle schwachen Pflanzen, Tiere und Menschen, die keinen Winter überleben können absterben wodurch Winter nie weider ein Problem werden soll.
+- Durch die Anbetung lies Auril eben solch einen Winter beginnen. Schneestürme begannen lang bevor man sie erwartet hätte und Bäume die teils noch Blätter trugen wurden mit Schnee bedeckt.
+- Mit einer relativ großen Gruppe sind wir durch die Städte gezogen. Es gab kaum Kämpfe, die Leute liesen sich meist schnell überreden und erkannten, was sie da taten. Sie waren alle nur verzweifelte Bürgern, welchen eine Lösung für ein scheinbar unlösbares Problem geboten wurde, dass sie darauf angesprungen sind war teils verständlich. Einige fanatischeren Mitglieder mussten wir jedoch mit Gewalt überreden.

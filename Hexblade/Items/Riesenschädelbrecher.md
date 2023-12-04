@@ -1,0 +1,6 @@
+- Seltenheit: Selten
+- +1 Angriff- Schadenswürfen
+- magische Waffe
+- Bonus von 3+ gegen Riesen (Hit und Schaden)
+- Nat 20 = zusätzliche 7 Wuchtschaden gegen Riesen 14 zusätzlichen Wuchtschaden
+- Riesen < 25 HP = direkt Tod
